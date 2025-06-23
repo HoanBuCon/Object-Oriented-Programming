@@ -1,1 +1,1 @@
-Learning and training my OOP skills 🧠
+Learning and Training my OOP skills 🧠
